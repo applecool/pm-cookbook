@@ -1,3 +1,20 @@
+Ingredients:
+
+ 
+- poppy seeds 3Tablespoons
+- onion 1/2Cup
+- ginger garlic paste 2Teaspoons
+- curry leaves few
+- cumin powder 1Teaspoons
+- coriander powder 2Teaspoons
+- chilli powder 1Teaspoons
+- coconut powder 1/2Cup
+- garam masala(whole) few
+- chicken 1No
+- pepper corns few
+- oil To Fry
+- salt To Taste
+
 1.Take whole chicken amp; donot remove the skin.As the taste is enhanced with the skin on.
 2.Take little water amp; turmeric mixture .Apply it to the entire raw chicken. 
 3. Roast it on the stove top till it gets evenly coloured from outside. 
